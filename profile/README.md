@@ -1,4 +1,4 @@
-## Hey, Welcome To Smartly Repos 👋
+## IF YOU ARE CONTRIBUTING TO THE REPOS OF THIS ORGANIZATION WE KNOW YOU ARE AWESOME 🔥
 
 <!--
 
